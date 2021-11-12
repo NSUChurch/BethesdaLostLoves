@@ -12,4 +12,4 @@ Bethesda Lost Loves is a project of [No Stone Unturned](https://nsuchurch.org), 
 
 ### News
 
-[STOLEN](https://www.nbcnews.com/specials/bethesda-home-girls-stolen-babies/), an NBC story by Tyler Kingkade, tells a chillingly accurate story about the plight of the Bethesda survivors who had their babies ripped from their arms. Many thanks to Tyler for your painstakingly thoughtful research, accurate reporting, and for your general badassery.
+[STOLEN](https://www.nbcnews.com/specials/bethesda-home-girls-stolen-babies/), by Tyler Kingkade of NBC, tells a chillingly accurate story about the plight of the Bethesda survivors who had their babies ripped from their arms. Many thanks to Tyler for your painstakingly thoughtful research, accurate reporting, and for your general badassery.
