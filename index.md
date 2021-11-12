@@ -1,12 +1,14 @@
 ## Bethesda Lost Loves
 
-Please donate to our efforts to reunite mothers and children! Currently we need DNA kits. They are usually between $99-149 but right now there's a 40% off sale. 
+Please help us reunite mothers with their missing children.
 
 ## [WE NEED DNA KITS!](https://www.paypal.com/donate/?hosted_button_id=2CWXZDWKF6TCW)
 
-The $99 DNA kits from Ancestry.com and 23andMe help us match Bethesda survivors with their missing birth children. Funds raised beyond our DNA kit need will be used to support adoption and genealogy searches, investigations, and to support efforts to STOP the atrocious institutional abuses committed by the troubled teen industry.
+The $99 DNA kits we purchase from Ancestry.com and 23andMe help us match Bethesda survivors with their missing birth children. 
 
-Bethesda Lost Loves is a project of [No Stone Unturned](https://nsuchurch.org), an organization committed to eliminating child abuse in the troubled teen industry.
+Funds raised beyond our DNA kit requirements will be used to support adoption and genealogy searches, expenses associated with reuniting families, investigations, and to support efforts to STOP the atrocious institutional abuses committed by the troubled teen industry.
+
+Bethesda Lost Loves is a project of [No Stone Unturned](https://nsuchurch.org), a charitable organization committed to eliminating child abuse in the troubled teen industry.
 
 ### News
 
