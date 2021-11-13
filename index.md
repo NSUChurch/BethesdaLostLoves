@@ -8,7 +8,7 @@ The $99 DNA kits we purchase from Ancestry.com and 23andMe help us match Bethesd
 
 Funds raised beyond our DNA kit requirements will be used to support adoption and genealogy searches, expenses associated with reuniting families, investigations, and to support efforts to STOP the atrocious institutional abuses committed by the troubled teen industry.
 
-Bethesda Lost Loves is a project of [No Stone Unturned](https://nsuchurch.org), who is committed to eliminating child abuse in the troubled teen industry.
+Bethesda Lost Loves is a fundraiser by [No Stone Unturned](https://nsuchurch.org), who is committed to eliminating child abuse in the troubled teen industry.
 
 If you'd prefer to **purchase a DNA kit and send it to us directly**, heck yes! Holiday discounts are available at ancestry.com (through Nov 24) and 23andme.com (through Nov 29).
 
