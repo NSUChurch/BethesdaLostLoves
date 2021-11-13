@@ -1,6 +1,6 @@
 ## Bethesda Lost Loves
 
-Please help us reunite mothers with their missing children.
+Reuniting Bethesda mothers with their missing children.
 
 ## [WE NEED DNA KITS!](https://www.paypal.com/donate/?hosted_button_id=2CWXZDWKF6TCW)
 
