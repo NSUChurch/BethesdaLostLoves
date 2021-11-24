@@ -10,15 +10,18 @@ Funds raised beyond our DNA kit requirements will be used to support adoption an
 
 Bethesda Lost Loves is a fundraiser by [No Stone Unturned](https://nsuchurch.org), who is committed to eliminating child abuse in the troubled teen industry.
 
-If you'd prefer to **purchase a DNA kit and send it to us directly**, heck yes! Holiday discounts are available at ancestry.com (through Nov 24) and 23andme.com (through Nov 29).
+If you'd prefer to **purchase a DNA kit and send it to us directly**, heck yes! Please use the links below; they'll help us earn coupons toward more DNA kits!
+
+### Buy a DNA kit at [ancestry.com](https://refer.ancestry.com/nsuchurch)  
+
+### Buy a DNA kit at [23andme.com](https://refer.23andme.com/s/nsuchurch)
 
 DNA kits can be shipped to our corporate office:
 
-Bethesda Lost Loves
-c/o No Stone Unturned
-6709 Raymond Road
-Madison, WI 53719
-
+**No Stone Unturned**  
+6709 Raymond Road  
+Madison, WI 53719  
+  
 ### News
 
 [STOLEN](https://www.nbcnews.com/specials/bethesda-home-girls-stolen-babies/), by Tyler Kingkade of NBC, tells a chillingly accurate story about the plight of the Bethesda survivors who had their babies ripped from their arms. Many thanks to Tyler for your painstakingly thoughtful research, accurate reporting, and for your general badassery.
